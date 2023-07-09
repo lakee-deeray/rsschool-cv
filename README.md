@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lakee-deeray.github.io/rsschool-cv/cv
